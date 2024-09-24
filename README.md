@@ -1,4 +1,4 @@
-Oi! me sou Juliana :)
+Oi! sou Juliana :)
 
 - 🔭 Hoje trabalho na coordenação de meio ambinete
 - 🌱 Esdutante de ADS (Análise e Desenvolvimento de Sistemas)
