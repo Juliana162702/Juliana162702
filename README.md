@@ -1,6 +1,6 @@
 Oi! sou Juliana :)
 
-- 🔭 Hoje trabalho na coordenação de meio ambinete
+- 🔭 Atualmente, atuo como Coordenadora Operacional na área de Meio Ambiente.
 - 🌱 Esdutante de ADS (Análise e Desenvolvimento de Sistemas)
   <div style="display: inline_block"><br>
   
